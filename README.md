@@ -1,4 +1,4 @@
-![swag-daveo](https://github.com/Fiwa42/Fiwa42/assets/69937337/c6d0721d-b792-401f-b8a9-66362203a615)
+<img src="https://github.com/Fiwa42/Fiwa42/assets/69937337/c6d0721d-b792-401f-b8a9-66362203a615" width="250" height="250"/>
 
 
 <!--
